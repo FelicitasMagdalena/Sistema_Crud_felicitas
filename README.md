@@ -2,5 +2,6 @@ felicitas magdalena huamani quispe
 
 capturas de pantalla
 
-![image](https://github.com/user-attachments/assets/f489ebd4-25f7-406e-86e9-8cbc25dacf47)
+![image](https://github.com/user-attachments/assets/c2a98800-b6d4-4027-80a4-c79165190606)
+
 
